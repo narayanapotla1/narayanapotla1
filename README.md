@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+
+I am narayana potla, from india, my hobbies are playing games, listening to music, watching shows and movies. Apart from that im a traveller, i would like on long drives especially by road ways.
 <!--
 **narayanapotla1/narayanapotla1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
